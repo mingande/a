@@ -1,4 +1,4 @@
-<p>https://git.io/tv72<p>2017/5/21 网址不定期更新，连不上时，请不同时间再试试。
+<p>https://git.io/tv72<p>2017/5/27 网址不定期更新，连不上时，请不同时间再试试。
 <p>封锁严厉！网址能访问的，请记的收藏。
 <p>◎   • 视 频： 
 <a href="http://s.wi32.top/tv/index.html" target="_blank">网址一</a> 　 
