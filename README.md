@@ -3,8 +3,8 @@
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎   • 视 频： 
 <a href="http://u.ccou.bid/tv/" target="_blank">网址一</a> 　 
-<a href="http://wi.ccgrp.win/9018.html" target="_blank">网址二</a> 　 
-<a href="http://wi.ccgrp.win/9449.html" target="_blank">网址三</a></p>
+<a href="http://s.wi32.top/9018.html" target="_blank">网址二</a> 　 
+<a href="http://s.wi32.top/9449.html" target="_blank">网址三</a></p>
 <p>◎ </span>  •  小 站：  
 <a href="http://u.ccou.bid/" target="_blank">网址一</a> 　 
 <a href="http://s.wi32.top/" target="_blank">网址二</a> 　 
